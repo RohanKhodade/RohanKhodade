@@ -13,8 +13,7 @@
 
 - 📫 How to reach me **rohankhodade884@gmail.com**
   
-- <img width="204" height="192" alt="image" src="https://github.com/user-attachments/assets/d0f4faa8-dbdf-4dcf-8a6e-dc3a0a12e74c" />
-Visit My Portfolio website -https://portfolio-dyh5.onrender.com/
+- Visit My Portfolio website -https://portfolio-dyh5.onrender.com/
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1O9xt-rhLnoS2frdvEYkwQhqtPn7XZAfz/view?usp=drive_link](https://drive.google.com/file/d/1O9xt-rhLnoS2frdvEYkwQhqtPn7XZAfz/view?usp=drive_link)
 
